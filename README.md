@@ -2,7 +2,7 @@
 - 👀 Estou interessado em ter uma boa faculdade;
 - 🌱 Atualmente estou aprendendo progamação na aula de pensamento computacional;
 - 💞️ Procuro colaborar em ser professora de artes ou ser enfermeira;
-- 📫 Como entrar em contato comigo: instagram-@thavini.fernanda;
+- 📫 Como entrar em contato comigo: instagram - @thavini.fernanda;
 - 😄 Pronomes: prefiro não específicar;
 - ⚡ Curiosidade: 
 
